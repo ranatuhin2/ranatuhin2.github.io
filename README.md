@@ -1,1 +1,0 @@
-# ranatuhin2.github.io
